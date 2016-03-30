@@ -1,2 +1,1 @@
-# ZeryabKhanGames
-Offlicial Zeryab Khan Games
+Zeryab Khan Games.jimdo.com
